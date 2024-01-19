@@ -1,1 +1,1 @@
-chiru ratnala ♥️
+chiru ratnal
